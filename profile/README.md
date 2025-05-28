@@ -4,6 +4,8 @@
 
 Temple Run Online is a **legendary endless runner** game that will push your reflexes to the limit. Step into the shoes of a fearless explorer escaping from a **dark temple** guarded by **savage demon monkeys**. With **hyper-speed action**, **lightning-fast turns**, and **deadly obstacles**, this is no ordinary run — it’s an **extreme survival quest**!
 
+## <a href="https://1kb.link/KXCy4L">👉 Click To Play Temple Run Unblocked 👈</a>
+
 Whether you're dodging fire traps, jumping over broken bridges, or sliding under ancient ruins, **Temple Run Online** delivers a **blazing, adrenaline-filled** ride through mystical landscapes.
 
 ---
